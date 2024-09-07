@@ -2,8 +2,8 @@
 
 Alexander Amaya León
 1026153324
-Ingeniería Industrial
+Introducción a la Inteligencia Artificial
 
 Juan Esteban Soto Taborda
 1007222787
-Ingeniería Industrial
+Introducción a la Inteligencia Artificial
