@@ -10,4 +10,4 @@ Ingeniería Industrial
 
 Entrega 2: https://www.youtube.com/watch?v=HaLwkM7W0xQ
 
-Entrega 3:
+Entrega 3: https://www.youtube.com/watch?v=vj_MRToQ4bE
