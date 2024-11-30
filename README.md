@@ -9,3 +9,5 @@ Juan Esteban Soto Taborda
 Ingeniería Industrial
 
 Entrega 2: https://www.youtube.com/watch?v=HaLwkM7W0xQ
+
+Entrega 3:
